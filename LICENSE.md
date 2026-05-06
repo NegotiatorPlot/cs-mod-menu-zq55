@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://NegotiatorPlot.github.io/cs-mod-menu-zq55/ ) |
  |---------------------|----------------------:|
 
 
